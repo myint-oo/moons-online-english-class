@@ -161,11 +161,3 @@ Here’s a **5-week English course for absolute beginners**
 3. **Printable Games**: Flashcards for matching emotions, actions, and objects.  
 
 ---
-
-This structure keeps everything simple, engaging, and focused on **confidence building**. Let me know if you want adjustments! 😊  
-
----
-
-**Q1**: How can I track the learners’ progress in this schedule?  
-**Q2**: What are some additional fun games or activities for beginners?  
-**Q3**: How can I help shy students participate actively in group sessions?  
