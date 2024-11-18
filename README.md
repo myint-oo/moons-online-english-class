@@ -23,7 +23,7 @@
 
 
 ## Outline
-Here’s a **5-week English course for absolute beginners** adjusted to your schedule:  
+Here’s a **5-week English course for absolute beginners**
 
 ---
 
